@@ -20,7 +20,7 @@ BitcoinTalk ANN Link: https://bitcointalk.org/index.php?topic=2638162
 BitcoinGarden ANN Link: https://bitcoingarden.org/forum/index.php?topic=24637
 BitcoinHomework Twitter Link: https://twitter.com/BitcoinHomework
 Bitcoin Homework Instagram: https://www.instagram.com/bitcoinhomework/
-BitcoinHomework Facebook Link: https://www.facebook.com/BitcoinHomework-189989724880591
+BitcoinHomework Facebook Link: https://www.facebook.com/ExtraCredit.io
 BitcoinHomework Telegram: https://t.me/extracredittoken
 Bitcoin Homework Discord: https://discord.gg/U9HRHS9
 BitcoinHomework Slack: https://bitcoinhomework.slack.com
